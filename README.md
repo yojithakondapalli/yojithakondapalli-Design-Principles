@@ -1,1 +1,0 @@
-# yojithakondapalli-Design-Principles
